@@ -6,7 +6,7 @@
 
 百度云/百度网盘超级会员账号SVIP账号分享, 另分享多款百度网盘不限速下载工具以及各大平台会员账号（迅雷、爱奇艺、优酷、腾讯视频、哔哩哔哩等）
 
-[http://yemao.vip/wangpan](http://yemao.vip/wangpan?utm_source=gh)      
+[http://yemao.in/wangpan](http://yemao.in/wangpan?utm_source=gh)      
    
    
    
